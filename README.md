@@ -57,7 +57,7 @@ E-Hand/
 
 ## 👤 Auteur
 
-**Gus** — Étudiant ingénieur en électromécanique  
+**Amir Mokhtar Ben Dhiab** — Étudiant ingénieur en électromécanique  
 [@bf2cinematic](https://x.com/bf2cinematic)
 
 ---
