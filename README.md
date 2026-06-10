@@ -58,7 +58,7 @@ E-Hand/
 ## 👤 Auteur
 
 **Amir Mokhtar Ben Dhiab** — Étudiant ingénieur en électromécanique  
-[@bf2cinematic](https://x.com/bf2cinematic)
+amirbendhiab0@gmail.com
 
 ---
 
